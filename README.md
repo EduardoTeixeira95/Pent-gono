@@ -1,1 +1,1 @@
-# Pent-gono
+# Pentágono
